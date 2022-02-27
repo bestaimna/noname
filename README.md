@@ -6,5 +6,5 @@ Pass: jAjh4sadn5JnjnS37
 
 Free panels = ud!!
 
-<img src="https://media.discordapp.net/attachments/946996899477614592/947367685287735307/unknown.png" alt="Image"/>![image](https://user-images.githubusercontent.com/77218162/155869779-2d5aaf6a-c369-4634-b6d4-e3af2132c9ce.png)
+<img src="https://media.discordapp.net/attachments/946996899477614592/947367685287735307/unknown.png" alt="Image"/>![image](https://user-images.githubusercontent.com/77218162/155869792-d288919a-fdf8-471f-9690-b1a96a2dbfca.png)
 
